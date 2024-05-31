@@ -1,5 +1,5 @@
 - 👋 Welcome, I’m arsh
-- 👀 I’m interested in _music,history, geography, and corona cerveza_
+- 👀 I’m interested in _music, history, geography, and corona cerveza_
 - 💞️ (https://historytoldwell.wordpress.com/)
 **
 <!---
